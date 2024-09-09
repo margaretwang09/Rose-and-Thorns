@@ -26,4 +26,7 @@ Hope you all enjoy reading the story!
 * Chapter21: https://margaretwang09.lofter.com/post/77ad17b3_2bcbc0d08
 * Chapter22: https://margaretwang09.lofter.com/post/77ad17b3_2bcbc0361
 * Chapter23: https://margaretwang09.lofter.com/post/77ad17b3_2bcb772c7
-* Chpater24: https://margaretwang09.lofter.com/post/77ad17b3_2bcb794d7
+* Chapter24: https://margaretwang09.lofter.com/post/77ad17b3_2bcb794d7
+* Chapter25: https://margaretwang09.lofter.com/post/77ad17b3_2bcc315e1
+* Chapter26: https://margaretwang09.lofter.com/post/77ad17b3_2bcc339a9
+* Chapter27: https://margaretwang09.lofter.com/post/77ad17b3_2bcc73e9b
