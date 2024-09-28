@@ -30,3 +30,10 @@ Hope you all enjoy reading the story!
 * Chapter25: https://margaretwang09.lofter.com/post/77ad17b3_2bcc315e1
 * Chapter26: https://margaretwang09.lofter.com/post/77ad17b3_2bcc339a9
 * Chapter27: https://margaretwang09.lofter.com/post/77ad17b3_2bcc73e9b
+* Chapter28: https://margaretwang09.lofter.com/post/77ad17b3_2bcc850f7
+* Chapter29: https://margaretwang09.lofter.com/post/77ad17b3_2bcd68046
+* Chapter30: https://margaretwang09.lofter.com/post/77ad17b3_2bcd80e98
+* Chapter31: https://margaretwang09.lofter.com/post/77ad17b3_2bcd8cf1d
+* Chapter32: https://margaretwang09.lofter.com/post/77ad17b3_2bcd8ef0a
+* Chapter33: https://margaretwang09.lofter.com/post/77ad17b3_2bce38747
+* Chapter34: https://margaretwang09.lofter.com/post/77ad17b3_2bce4bf27
