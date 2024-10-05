@@ -37,3 +37,11 @@ Hope you all enjoy reading the story!
 * Chapter32: https://margaretwang09.lofter.com/post/77ad17b3_2bcd8ef0a
 * Chapter33: https://margaretwang09.lofter.com/post/77ad17b3_2bce38747
 * Chapter34: https://margaretwang09.lofter.com/post/77ad17b3_2bce4bf27
+* Chapter35: https://margaretwang09.lofter.com/post/77ad17b3_2bce4d788
+* Chapter36: https://margaretwang09.lofter.com/post/77ad17b3_2bce4ee4c
+* Chapter37: https://margaretwang09.lofter.com/post/77ad17b3_2bce6505d
+* Chapter38: https://margaretwang09.lofter.com/post/77ad17b3_2bce68529
+* Chapter39: https://margaretwang09.lofter.com/post/77ad17b3_2bce77de5
+* Chapter40: https://margaretwang09.lofter.com/post/77ad17b3_2bceddc79
+* Chapter41: https://margaretwang09.lofter.com/post/77ad17b3_2bceabd4f
+* Chapter42: https://margaretwang09.lofter.com/post/77ad17b3_2bceb8c52
